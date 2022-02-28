@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vinny309
 - 👀 I’m interested in the all the beauty of life.
 - 🌱 I’m currently learning how to become the best dev that I can be.
-- 💞️ I’m looking to collaborate on the future 
+- 💞️ I’m looking to collaborate on the future. 
 - 📫 How to reach me Vcarter1574@gmail.com
 
 <!---
